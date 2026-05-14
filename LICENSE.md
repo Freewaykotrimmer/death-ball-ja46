@@ -1,4 +1,4 @@
-#  
+#  Experience death ball like never before with new death ball Scripts, the #1 Script. Includes one-hit kill and auto-collect for unbeatable performance.
 
 
 
